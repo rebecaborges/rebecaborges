@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Welcome to my profile! 🚀  
+Welcome to my profile!
 
 ---
 <div align="center">
